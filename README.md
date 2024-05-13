@@ -21,3 +21,6 @@ Thanks for visiting and feel free to ask me anything!
 
 https://linktr.ee/roseliep
 
+![image](https://github.com/roseliep/roseliep/assets/149915376/2a70c668-1509-48b4-a261-0be0a348475d)
+
+
