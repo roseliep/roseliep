@@ -21,6 +21,21 @@ Thanks for visiting and feel free to ask me anything!
 
 https://linktr.ee/roseliep
 
-![image](https://github.com/roseliep/roseliep/assets/149915376/2a70c668-1509-48b4-a261-0be0a348475d)
+Languages and Tools:
+
+![image](https://github.com/roseliep/roseliep/assets/149915376/2a70c668-1509-48b4-a261-0be0a348475d) ![image](https://github.com/roseliep/roseliep/assets/149915376/67d4c09f-5c4c-4049-a2f4-207ef2a0d4f7) ![image](https://github.com/roseliep/roseliep/assets/149915376/9037503b-4045-4c3e-bdfd-398849fe9816) ![image](https://github.com/roseliep/roseliep/assets/149915376/4a21f8ac-7a40-42ea-9337-a6bac25a7607) 
+
+
+![image](https://github.com/roseliep/roseliep/assets/149915376/d7780fa7-c090-4885-b221-bb6889c6e83b)
+
+![image](https://github.com/roseliep/roseliep/assets/149915376/83ac2d11-e6a9-4e6b-b358-28cb36bd7dd2)
+
+![image](https://github.com/roseliep/roseliep/assets/149915376/5b7d5741-1aee-4a21-ae88-c3823cea50b7)
+
+
+
+
+
+
 
 
